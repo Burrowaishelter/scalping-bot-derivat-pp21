@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with new scalping bot for derivatives Plugin | leverage-management + API-integration, the #1 scalping bot for derivatives. Includes leverage-management and
 
 
 
